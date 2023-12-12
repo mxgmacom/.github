@@ -1,3 +1,0 @@
-# MXGMA
-
-Welcome to MXGMA!
